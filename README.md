@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @WuhanGainOfFunctionResearch
 - 👀 I’m interested in Programming and Cyber security fundamentals
 - 🌱 I’m currently learning Python
-- ✝️ ✟ FUck off
+- ✝️ ✟ very racist, homophobic, transphobic terrorist supporting man
 - wee faggots
 
 <!---
